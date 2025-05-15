@@ -1,2 +1,2 @@
 # Mercy-Birthday
-Happy Birthday Bestie....🎂🍰
+Happy Birthday Bestie...
